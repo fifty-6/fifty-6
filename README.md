@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fifty-6
-- 👀 I’m interested in Gaming
+- 👀 I’m interested in Gaming,testing and learning
 - 🌱 I’m currently learning Programming
 - 💞️ I’m looking to collaborate on nothing
 - 📫 you CAN'T reach me
